@@ -1,4 +1,4 @@
-### # Hey there, I'm Joe! 👋
+### Hey there, I'm Joe! 👋
 
 ## About 
 
